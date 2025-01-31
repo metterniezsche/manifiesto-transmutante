@@ -1,6 +1,6 @@
-# ✦ Manifiesto Transmutante ✦
+# ✦ MANIFIESTO TRANSMUTANTE ✦
 
-Un protocolo abierto para cuerpos en transición y mutación.
+PROTOCOLO ABIERTO PARA LA MUTACIÓN DEL GÉNERO, ENTRE LA GNOSIS CIBERNÉTICA Y LA FE COMO TRANSICIÓN DE FASE ✦
 
 ## 📜 Sobre el manifiesto
 El **Manifiesto Transmutante** es un llamado a la mutación real, rechazando tanto el esencialismo fascista como el simulacro wokista. Propone una reconstrucción material del género como ensamblaje de carne, biotecnología y deseo.
